@@ -1,7 +1,7 @@
-★ Call me Livis!! im also non binary but i also dont really care if you use he/she on me but if you can use they/them
+★ Call me Livis!! im also non binary but i also dont really care if you use he/she on me but if you can please use they/them
 
 ★ I REALLY  like hermitcraft/life series AND! both of the yhs (itsfunneh yhs samgladiator yhs) no i didnt watch the reboot :P
-i also like splatoon but im not really looking for any friends who only like splatoon sorry!!
+i also like splatoon but im not really looking for any friends who only like splatoon sorry!! (also scars my fav i love scar i may or may not have 100 facts about just him)
 
 ★ when i have ''dniuid'' 'dniuf'' in my  name it means ''do not interact unless i do'' ''do not interact unless friends'' but i could care less if you broke them
 
@@ -11,7 +11,7 @@ i also like splatoon but im not really looking for any friends who only like spl
 ''ermmm.... but how much do you like these artist how do i know your not a POSER!...''
 these are artists i really like and if they are there i probably listened to all/most of their music :P
 
-★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!!
+★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!! just dont excpect me to talk 
 
 <!---
 livissssss/livissssss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
