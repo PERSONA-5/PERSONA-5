@@ -12,6 +12,7 @@ i also like splatoon but im not really looking for any friends who only like spl
 these are artists i really like and if they are there i probably listened to all/most of their music :P
 
 ★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!! just dont excpect me to talk 
+
 SMALLETHO SHIPPERS DNI I DO NOT LIKE YOU GUYS U MAKE ME PUKE
 <!---
 livissssss/livissssss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
