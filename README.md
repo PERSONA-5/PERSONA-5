@@ -14,6 +14,4 @@ these are artists i really like and if they are there i probably listened to all
 ★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!! just dont excpect me to talk 
 
 ★ DNI list in rentry read byi
-livissssss/livissssss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
