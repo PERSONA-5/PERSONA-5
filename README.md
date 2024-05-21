@@ -17,5 +17,5 @@ these are artists i really like and if they are there i probably listened to all
 
 just found out how to put pictues this is ethoslab he is a 37 year old man. i love him thank you random splatoon fan
 ![etho](https://github.com/livissssss/livissssss/assets/164212085/186f9ea8-e84a-48b3-ac49-15490f81c866)
-
+★
 ![EHOTHOEHO](https://github.com/livissssss/livissssss/assets/164212085/ae88d1f5-11a7-484d-9e73-de627502471b)
