@@ -14,6 +14,6 @@ these are artists i really like and if they are there i probably listened to all
 ★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!! just dont excpect me to talk 
 
 ★ DNI list in rentry read byi
-![Screenshot 2024-05-18 8 31 25 PM](https://github.com/livissssss/livissssss/assets/164212085/c1b0909f-df20-4956-bb01-3d87c8b93c5c)
 
+<div class="tenor-gif-embed" data-postid="15414242424108176723" data-share-method="host" data-aspect-ratio="0.932836" data-width="100%"><a href="https://tenor.com/view/ethoslab-hermitcraft-gif-15414242424108176723">Ethoslab Hermitcraft GIF</a>from <a href="https://tenor.com/search/ethoslab-gifs">Ethoslab GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
