@@ -15,7 +15,7 @@ these are artists i really like and if they are there i probably listened to all
 
 ★ DNI list in rentry read byi
 
-just found out how to put pictues this is ethoslab he is a 40 something year old man who plays minecraft for a living and goes 'Oh snappers!''. i love him thank you random splatoon fan  
+just found out how to put pictues this is ethoslab he is a 35 something year old man who plays minecraft for a living and goes 'Oh snappers!''. i love him thank you random splatoon fan  
 
 ![etho](https://github.com/livissssss/livissssss/assets/164212085/186f9ea8-e84a-48b3-ac49-15490f81c866) 
 
