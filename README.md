@@ -7,7 +7,7 @@ i also like splatoon but im not really looking for any friends who only like spl
 
 ★ please dont be weird to me or make like weird jokes to me if its our first time meeting
 
-★ music artists i like!! :P Ken Ashcorp,Kets4eki,The Cranewives,Ayesha erotica,Evil anvil and splatoon music in genreral
+★ music artists i like!! :P Ken Ashcorp,Kets4eki,The Cranewives,Ayesha erotica,Evil anvil,fake type and splatoon music in genreral
 ''ermmm.... but how much do you like these artist how do i know your not a POSER!...''
 these are artists i really like and if they are there i probably listened to all/most of their music :P
 
