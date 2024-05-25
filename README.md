@@ -1,22 +1,39 @@
-★ Call me Livis!! im also non binary but i also dont really care if you use he/she on me but if you can please use they/them
-
-★ I REALLY  like hermitcraft/life series AND! both of the yhs (itsfunneh yhs samgladiator yhs) no i didnt watch the reboot :P
-i also like splatoon but im not really looking for any friends who only like splatoon sorry!! (also scars my fav i love scar i may or may not have 70 facts about just him/srs)
-
-★ when i have ''dniuid'' 'dniuf'' in my  name it means ''do not interact unless i do'' ''do not interact unless friends'' but i could care less if you broke them
-
-★ please dont be weird to me or make like weird jokes to me if its our first time meeting
-
-★ music artists i like!! :P Ken Ashcorp,Kets4eki,The Cranewives,Ayesha erotica,Evil anvil,fake type and splatoon music in genreral
-''ermmm.... but how much do you like these artist how do i know your not a POSER!...''
-these are artists i really like and if they are there i probably listened to all/most of their music :P
-
-★ i have horrible social anxiety so its hard for me to talk to people but i do like interacting so dont be scared to sit with me!! just dont excpect me to talk 
-
-★ DNI list in rentry read byi
-
-just found out how to put pictues this is ethoslab he is a 35 something year old man who plays minecraft for a living and goes 'Oh snappers!''. i love him thank you random splatoon fan. he has also invented the etho hopperclock that revolutionized redstoning back in 2013
-
-![etho](https://github.com/livissssss/livissssss/assets/164212085/186f9ea8-e84a-48b3-ac49-15490f81c866) 
+![Untitled10_20240524202651](https://github.com/livissssss/livissssss/assets/164212085/a8608440-a171-4bd8-8e9c-2b40ef6bc261)
+![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
+## **★im Livis and i use they/them !! want to know more about me? scroll down!!**
+![bpHMI70Uqqagrg3C-ezgif com-video-to-gif-converter (3)](https://github.com/livissssss/livissssss/assets/164212085/51587d94-8587-44c4-8c7d-f7efa4a2e48b)
 
 
+animation by ''lailaimei jeslousy jealousy YHS'' LET GIFS LOAD PRETTY PLEASE
+![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
+
+# **★my main intrests! <-most intrested=least intrested->★**
+#### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
+
+![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/01db34fa-0526-4a9a-9d4a-acce62a808c7)
+### skins i wear!! i change main skins often so heres my recent ones!
+
+![pony-town-divrrr_#dniuf-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/f9876e00-1b5b-4323-84f9-4eed4d95b250)
+![pony-town-shivr''dniuid-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/ba7f65b5-b83d-45a7-a3f4-9888abd50aef)![pony-town-shady' or calmar or something-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/760b7aed-d62d-444b-90bf-5fb85f20f954)![pony-town-rina''-trot-blinking-padded-4x (1)](https://github.com/livissssss/livissssss/assets/164212085/a4976163-cee4-4f85-aabd-32f284cd9654)![pony-town-I HATE SKULL!!!!!!!!!!!DNIUF-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/5d63d675-769a-4937-a58d-4f16039b86b2)![pony-town-_HALF-RIMS''GLOVES KISSER-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/bc47bc10-a56f-4a68-a0a3-10037e377018)
+
+## thank you so much if you crown/say my skin is pretty!! it means alot ^^''
+![giphy-ezgif com-resize (1)](https://github.com/livissssss/livissssss/assets/164212085/d9797dc1-eeed-4e1a-82d7-e17f7ad98c65)
+ ![EHOTHOEHO-ezgif com-resize (2)](https://github.com/livissssss/livissssss/assets/164212085/037d6fcd-813a-4074-97c8-f1c9a6b3ab21)
+ 
+ ![Untitled10_20240524202651](https://github.com/livissssss/livissssss/assets/164212085/478fba69-492e-460a-803e-4c1afba2e8f7)
+
+
+ # music artists i like listening too!
+### Ken-ashcorp,The-crane-wives,Fake-type,Kets4eki,Vampyx,Ayesha-erotica and splatoon(bottom-feeders)
+
+##### some songs i like from each artist in order ^^'' !!
+''OG spike'' ''take me to war'' ''beezelbub'' ''explosion!'' ''slaughterhouse party'' ''girl next door'' ''fins ands fiddles''
+
+![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/44afe87b-d804-47d5-98b1-6b55265ac98d)
+
+
+ my favourite characters in a list!! I WILL ADD LATER IM NOT DONE WITH THIS!!!!!!
+
+ insert photo
+ 
+want to know how to put pictures in your github? private message me and ill happily help you!! ^^ IM MORE SCARED OF YOU THEN YOU ARE OF ME PLEASE!!
