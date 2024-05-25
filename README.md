@@ -1,5 +1,5 @@
 ![Untitled10_20240524202651](https://github.com/livissssss/livissssss/assets/164212085/a8608440-a171-4bd8-8e9c-2b40ef6bc261)
-## **★im Livis and i use they/them !! want to know more about me? scroll down!!**
+## **★im Livis and im 14!! want to know more about me? scroll down!!**
 ![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
 
 ![bpHMI70Uqqagrg3C (3)](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/02bc394c-31e8-43d6-b041-0795969581d3)
