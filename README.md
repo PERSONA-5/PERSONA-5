@@ -1,7 +1,8 @@
 ![Untitled10_20240524202651](https://github.com/livissssss/livissssss/assets/164212085/a8608440-a171-4bd8-8e9c-2b40ef6bc261)
 ## **★im Livis and i use they/them !! want to know more about me? scroll down!!**
 ![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
-![bpHMI70Uqqagrg3C-ezgif com-video-to-gif-converter (3)](https://github.com/livissssss/livissssss/assets/164212085/51587d94-8587-44c4-8c7d-f7efa4a2e48b)
+
+![bpHMI70Uqqagrg3C (3)](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/02bc394c-31e8-43d6-b041-0795969581d3)
 
 
 animation by ''lailaimei jeslousy jealousy YHS'' LET GIFS LOAD PRETTY PLEASE
