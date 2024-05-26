@@ -32,11 +32,11 @@ animation by ''lailaimei jeslousy jealousy YHS'' LET GIFS LOAD PRETTY PLEASE
 ##### ★some songs i like from each artist in order ^^'' !!
 ''OG spike'' ''take me to war'' ''beezelbub'' ''explosion!'' ''slaughterhouse party'' ''girl next door'' ''fins ands fiddles''
 
-![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/44afe87b-d804-47d5-98b1-6b55265ac98d)
+![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/44afe87b-d804-47d5-98b1-6b55265ac98d))
+#### decided not to do a favourite charcter list BUT I LOVE SCAR THO!! RAHHHHHHHH
+![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
+![HIP MEME【3RD LIFE ANIMATION】](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/28e84655-7d16-4438-abba-19dce7127609)
 
-
- my favourite characters in a list!! I WILL ADD LATER IM NOT DONE WITH THIS!!!!!!
-
- insert photo
- 
+animation by ''cerakuro [HIP MEME【3RD LIFE ANIMATION】''
+ ![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
 want to know how to put pictures in your github? private message me and ill happily help you!! ^^ IM MORE SCARED OF YOU THEN YOU ARE OF ME PLEASE!!
