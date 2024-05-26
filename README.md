@@ -10,7 +10,7 @@ animation by ''lailaimei jeslousy jealousy YHS'' LET GIFS LOAD PRETTY PLEASE
 
 # **★my main intrests! <-most intrested=least intrested->★**
 #### ★HERMITCRAFT★LIFE-SERIES★SPLATOON★COROIKA★YHS.SG★YHS.IF★CRK★FLAMINGO★ONGEZELLIG★NSO★
-
+![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/01db34fa-0526-4a9a-9d4a-acce62a808c7)
 ### ★skins i wear!! i change main skins/styles often so heres my recent ones!
 
