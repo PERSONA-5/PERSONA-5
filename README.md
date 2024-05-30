@@ -13,8 +13,7 @@ animation by ''lailaimei jeslousy jealousy YHS'' WAIT FOR GIFS 2 LOAD PRETTY PLE
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/01db34fa-0526-4a9a-9d4a-acce62a808c7)
 ### ★skins i wear!! i change main skins/styles often so heres my recent ones!
 
-![pony-town-divrrr_#dniuf-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/f9876e00-1b5b-4323-84f9-4eed4d95b250)
-![pony-town-shivr''dniuid-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/ba7f65b5-b83d-45a7-a3f4-9888abd50aef)![pony-town-shady' or calmar or something-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/760b7aed-d62d-444b-90bf-5fb85f20f954)![pony-town-rina''-trot-blinking-padded-4x (1)](https://github.com/livissssss/livissssss/assets/164212085/a4976163-cee4-4f85-aabd-32f284cd9654)![pony-town-I HATE SKULL!!!!!!!!!!!DNIUF-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/5d63d675-769a-4937-a58d-4f16039b86b2)![pony-town-warab e-trot-blinking-padded-4x](https://github.com/livissssss/livissssss/assets/164212085/af5c6b1b-0005-46b8-aafd-580f1c70433e)![pony-town-Inkling Girl!1!''-trot-blinking-padded-4x](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/f885d371-98c4-4eee-81df-d6d3fe65477d)![pony-town-P-E-T'_ETHO'__offtab-trot-blinking-padded-4x (1)](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/04653e18-969e-438c-aeec-2430a29396c6)
+![Untitled13_20240530095845](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/27e9a7f6-e0a4-4c15-87d6-dee8c88fd5f4)
 
 
 
