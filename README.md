@@ -13,8 +13,8 @@ animation by ''lailaimei jeslousy jealousy YHS'' WAIT FOR GIFS 2 LOAD PRETTY PLE
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/01db34fa-0526-4a9a-9d4a-acce62a808c7)
 ### ★skins i wear!! i change main skins/styles often so heres my recent ones!
 
-![Untitled13_20240530095845](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/27e9a7f6-e0a4-4c15-87d6-dee8c88fd5f4)
-
+![Untitled13_20240604002846](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/33c6b4e8-33b4-49f3-8053-b8847be86c16)
+i am so sorry for putting them in the cactus ring
 
 
 ## ★thank you so much if you crown/say my skin is pretty!! it means alot ^^''
