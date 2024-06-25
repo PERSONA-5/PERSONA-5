@@ -13,7 +13,8 @@ animation by ''lailaimei jeslousy jealousy YHS'' WAIT FOR GIFS 2 LOAD PRETTY PLE
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/01db34fa-0526-4a9a-9d4a-acce62a808c7)
 ### ★skins i wear!! i change main skins/styles often so heres my recent ones!
 
-![Untitled13_20240604002846](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/33c6b4e8-33b4-49f3-8053-b8847be86c16)
+![Untitled13_20240625111501](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/96d12d12-a75f-4559-9478-3f30c7ad7066)
+
 i am so sorry for putting them in the cactus ring
 
 
@@ -29,7 +30,7 @@ i am so sorry for putting them in the cactus ring
 
 ##### ★some songs i like from each artist in order ^^''
 
-''OG spike'' ''take me to war'' ''beezelbub'' ''explosion!'' ''slaughterhouse party'' ''girl next door'' ''fins ands fiddles'' 
+''ryder or riot'' ''stranglers fig'' ''primavera'' ''explosion!'' ''the monester in your bed'' ''girl next door'' ''fins ands fiddles'' 
 
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/44afe87b-d804-47d5-98b1-6b55265ac98d)
 #### decided not to do a favourite charcter list BUT I LOVE SCAR THO!! RAHHHHHHHH
