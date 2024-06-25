@@ -4,7 +4,7 @@
 
 ![bpHMI70Uqqagrg3C (3)](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/02bc394c-31e8-43d6-b041-0795969581d3)
 
-animation by ''lailaimei jeslousy jealousy YHS'' WAIT FOR GIFS 2 LOAD PRETTY PLEASE
+animation by ''lailaimei jeslousy jealousy YHS'' WAIT FOR GIFS 2 LOAD PRETTY PLEASE PLEASE I PUT 2 MANY AND DONT WANNA GIVE ANY OF THEM UP
 ![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
 
 # **★my main intrests! <-most intrested=least intrested->★**
