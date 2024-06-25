@@ -31,7 +31,7 @@ i am so sorry for putting them in the cactus ring
 ##### ★some songs i like from each artist in order ^^''
 
 ''ryder or riot'' ''stranglers fig'' ''primavera'' ''explosion!'' ''the monster in your bed'' ''girl next door'' ''fins ands fiddles'' 
-
+★plz listen 2 some if you got the time ^^
 ![Untitled10_20240524202704](https://github.com/livissssss/livissssss/assets/164212085/44afe87b-d804-47d5-98b1-6b55265ac98d)
 #### decided not to do a favourite charcter list BUT I LOVE SCAR THO!! RAHHHHHHHH
 ![giphy1-ezgif com-resize (3)](https://github.com/livissssss/livissssss/assets/164212085/d76812ba-5e0d-45a4-a61e-28a7b7467a0f)
