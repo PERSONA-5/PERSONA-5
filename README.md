@@ -1,6 +1,6 @@
 
 
-i am 14 dont be weird 2 me plz like the guy that took me 2 his island and told me 2 undress
+i am 14 dont be weird 2 me plz like the guy that took me to his island and told me 2 undress
 
 
 https://github.com/LIVISSKU/LIVISSKU/assets/164212085/759cb709-9196-4623-bf09-06c5e2d5fcb0
