@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=LIVISSKU)
+
 
 i am 14 dont be weird 2 me plz like the guy that took me 2 his island and told me 2 undress
 
