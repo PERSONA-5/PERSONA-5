@@ -1,17 +1,4 @@
-
-
-i am 14 dont be weird 2 me plz like the guy that took me to his island and told me 2 undress
-
-
-https://github.com/LIVISSKU/LIVISSKU/assets/164212085/759cb709-9196-4623-bf09-06c5e2d5fcb0
-
-I FUCKING LOVE YOUR MOD YOUR FUNKADELIZ FUNNY MOD!!!!! turn on sound PLEA SPLEASE
-
-![FbGSWB6UIAkW2jn](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/2f6c7ba8-1270-4e4d-b560-7726438e30b3)
-
-![Screenshot 2024-05-03 6 54 07 PM](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/f9f1ea93-8231-46fe-8da0-265118125177)
-this is hermitcraft
-
- ![Screenshot 2024-07-01 2 06 15 AM](https://github.com/LIVISSKU/LIVISSKU/assets/164212085/04f8d270-7e4a-4321-a4bd-a15d40b7cf63)
-
-
+## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎  ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ yeah this is all i bothered 2 finish
+<p align="center">
+  <img src="https://private-user-images.githubusercontent.com/170719355/347176590-bf196c5b-d8e4-4528-8ddb-e8520273fe5f.png?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MjA1Njc5OTUsIm5iZiI6MTcyMDU2NzY5NSwicGF0aCI6Ii8xNzA3MTkzNTUvMzQ3MTc2NTkwLWJmMTk2YzViLWQ4ZTQtNDUyOC04ZGRiLWU4NTIwMjczZmU1Zi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjQwNzA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI0MDcwOVQyMzI4MTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hNGNhOGZhMWVmMThlMTExNWJmMWQ4YjRjNGY2Y2YzYWNjYjYxNzAzMTc2NmQ0MDllYWEyNWVmMzEyZTU1OGE4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZhY3Rvcl9pZD0wJmtleV9pZD0wJnJlcG9faWQ9MCJ9.xw0xVcOHjhV6wXi6PZB7Wyy0Mg6Ml9PCk1npkdr-eBQ"/>
+</p>
