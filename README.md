@@ -6,7 +6,10 @@
 
 ![c0vjvv](https://github.com/TAURTlS/TAURTlS/assets/164212085/231ecf21-832b-4092-abb2-b2aa6fe4db37)
 
-![ezgif com-animated-gif-maker](https://github.com/TAURTlS/TAURTlS/assets/164212085/c9ea7eaf-9aa7-4781-a4c3-a675a0d55030)
-**WIP!!! ill finish this later! so check later if your curious about me!**
+<p align="center">
+  <img width="802" height="477" src="https://i.imgur.com/jjhxYGz.png">
+</p>
 
 ![tam8xd](https://github.com/TAURTlS/TAURTlS/assets/164212085/b020f9a5-125a-4e4c-9281-c4950549eb9c)
+
+straw page in the making!
