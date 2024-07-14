@@ -1,4 +1,5 @@
-![tumblr_3308cda825c4f6d1c7c6244dbe600f4b_f4a12249_1280](https://github.com/TAURTlS/TAURTlS/assets/164212085/ab769d3c-4216-4ece-89bc-59f5f354b7f3)
+![Untitled25_20240713205905](https://github.com/user-attachments/assets/6610055d-5b70-4ef9-917c-ad52814eefd3)
+
 
 <p align="center">
   <img width="450" height="550" src="https://i.imgur.com/zGeMhHC_d.webp?maxwidth=760&fidelity=grand">
