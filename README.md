@@ -7,7 +7,7 @@
 
 [<img src="https://i.imgur.com/vYM3t6L.png">](https://taurtls.straw.page)
 
-                                                art by luminous_slime
+                                                  art by luminous_slime
 
 ![c0vjvv](https://github.com/TAURTlS/TAURTlS/assets/164212085/231ecf21-832b-4092-abb2-b2aa6fe4db37)
 
