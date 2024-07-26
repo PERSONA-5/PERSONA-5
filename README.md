@@ -17,3 +17,5 @@
 
 ![Untitled25_20240713205905](https://github.com/user-attachments/assets/6610055d-5b70-4ef9-917c-ad52814eefd3)
  click the text that says strawpage to go to my straw page ^o^
+
+i need 2 edit this so badly cuz i dont like how i worded some of these -_-'' i hate u procasticationicastoiiosmifcation make out with me rn if u got that ref
