@@ -16,5 +16,4 @@
 </p>
 
 ![Untitled25_20240713205905](https://github.com/user-attachments/assets/6610055d-5b70-4ef9-917c-ad52814eefd3)
- click the text that says strawpage to go to my straw page ^o^
-my birfdate id july28 😱
+ click the text that says strawpage to go to my straw page ^o^ 😱
