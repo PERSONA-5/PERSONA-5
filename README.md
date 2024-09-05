@@ -18,10 +18,5 @@
 ![Untitled25_20240713205905](https://github.com/user-attachments/assets/6610055d-5b70-4ef9-917c-ad52814eefd3)
  click the text that says strawpage to go to my straw page ^o^ 😱
 
-![hokonerd-tantrum](https://github.com/user-attachments/assets/06e5822f-5e13-4ca7-91f6-d0f18c0554c0)
 
-sighs
-
-![Screenshot 2024-08-09 6 53 30 AM](https://github.com/user-attachments/assets/5bf43395-1d01-4465-ba37-4269a1510d0f)
-
-
+i hate making skins i hate pony town
