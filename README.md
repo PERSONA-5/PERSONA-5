@@ -19,4 +19,4 @@
  click the text that says strawpage to go to my straw page ^o^ 😱
 
 
-i hate making skins i hate pony town
+IM NOT A SYSTEM!!! i just really like taurtis >.>>>>> !! srry if u got confused
