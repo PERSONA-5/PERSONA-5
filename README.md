@@ -1,3 +1,3 @@
-![Untitled35_20240924224346](https://github.com/user-attachments/assets/344497ce-590d-458b-ad32-2ceba68bb6ef)
+![Untitled54_20240925033433](https://github.com/user-attachments/assets/13a15d50-3a21-4aef-bd91-2ca0feb346a9)
 
-look at my straw page in the links it has sum stuff abt me while i redo this :P
+IM NOT DONE YET MORE ABOUT ME WILL BE ADDED SOON ^_^! art by @01nu on deviant art.. look at my strawpage in the meantime it has some stuff abt me :D
