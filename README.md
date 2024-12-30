@@ -1,10 +1,5 @@
 ![Untitled54_20240925093741](https://github.com/user-attachments/assets/58de0f36-2dbc-4710-8d6f-cf00232e42a7)
 [<img src="https://i.imgur.com/5uGebMw.png">](https://taurtls.straw.page)
+<img align="right" width="628" height="702" src="https://i.imgur.com/UAzG2Jq.png">
 
-
- :P first drawing (ldshadowlady drawing) by @01nu on deviant art second drawing (zana art) by @laiteas on twitter!!!!! !1 !1 !!!!!
- ..click the strawpage image to go to my strawpage more info about me there!!
- 
-
-
-
+<img align="left" width="528" height="602" src="https://i.imgur.com/qQnu5Uo.png">
