@@ -2,6 +2,6 @@
 [<img src="https://i.imgur.com/5uGebMw.png">](https://taurtls.straw.page)
 <img align="right" width="470" height="470" src="https://i.imgur.com/UAzG2Jq.png">
 <img align="left" width="330" height="350" src="https://i.imgur.com/qQnu5Uo.png">
-<img align="right" width="330" height="190" src="https://i.imgur.com/fEGXvi1.png">
+<img align="right" width="330" height="190" src="https://i.imgur.com/1OoI1Y6.png">
 
 
