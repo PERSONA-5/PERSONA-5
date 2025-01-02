@@ -6,5 +6,8 @@
 <img align="right" width="235" height="35" src="https://i.imgur.com/9q7vLY1.gif">
 ![Untitled200_20241231151203](https://github.com/user-attachments/assets/ec8118ef-73c3-456f-9171-677ca29dc0a6)
 
+<p align="center">
+  <img width="400" height="340" src="https://i.imgur.com/3mthLN6.png">
+</p>
 
 
