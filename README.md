@@ -16,8 +16,9 @@ $${\color{blue}  persona \ fans \ begging \ you \ to \ c+h }$$
 <img align="right" width="335" height="225" src="https://i.imgur.com/xs7vq8L.png">
 
 #
-
-
+<p align="center">
+  <img width="320" height="20" src="https://64.media.tumblr.com/4ac08cc0c825c858ee16ceef955edd74/aef2bce9cec42e18-73/s400x600/8825b8513786fa800458ab8c9ec2af233b0d7dae.gifv">
+  
 <p align="center">
   <img width="320" height="300" src="https://media1.tenor.com/m/0hdA1Ri-zPIAAAAd/shuake-persona-5.gif">
   
