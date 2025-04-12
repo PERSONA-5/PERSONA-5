@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" height=50" src="https://64.media.tumblr.com/95db82765c0b7cd285ff6c90f37a8fdf/d7be25c021a2702d-de/s2048x3072/dec2cdeb2eefdd51894444176550488b726f51d0.pnj">
+  <img width="200" height=30" src="https://64.media.tumblr.com/0d41b51b6cc3027bbc56fa14899689c0/c96415a6c6107e9b-1f/s400x600/3c8441bea7860a328cfa96b80267935455e3c58d.gifv">
 
 $${\color{blue} redoing \ this!! \ not \ right \ now \ tho...LMAO }$$
 <p align="center">
