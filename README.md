@@ -1,3 +1,6 @@
+<p align="center">
+  <img width="600" height=50" src="https://64.media.tumblr.com/95db82765c0b7cd285ff6c90f37a8fdf/d7be25c021a2702d-de/s2048x3072/dec2cdeb2eefdd51894444176550488b726f51d0.pnj">
+
 $${\color{blue} redoing \ this!! \ not \ right \ now \ tho...LMAO }$$
 <p align="center">
   <img width="400" height="400" src="https://i.imgur.com/0UNCWrf.png">
