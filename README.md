@@ -1,6 +1,6 @@
-$${\color{blue} redoing \ this!! \ not \ right \ now \ thoLMAO }$$
+$${\color{blue} redoing \ this!! \ not \ right \ now \ tho...LMAO }$$
 <p align="center">
-  <img width="400" height="400" src="https://i.imgur.com/DzBTUDi.png">
+  <img width="400" height="400" src="https://i.imgur.com/0UNCWrf.png">
 
 $${\color{blue}they/them }$$
 
