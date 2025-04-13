@@ -1,13 +1,13 @@
 <p align="center">
   <img width="200" height=30" src="https://64.media.tumblr.com/0d41b51b6cc3027bbc56fa14899689c0/c96415a6c6107e9b-1f/s400x600/3c8441bea7860a328cfa96b80267935455e3c58d.gifv">
 
-$${\color{blue} redoing \ this!! \ not \ right \ now \ tho...LMAO }$$
 <p align="center">
   <img width="400" height="400" src="https://i.imgur.com/0UNCWrf.png">
 
 $${\color{blue}they/them }$$
 
-$${\color{blue}  persona \ fans \ begging \ you \ to \ c+h }$$
+
+$${\color{blue} redoing \ this!! \ not \ right \ now \ tho...LMAO }$$
 
 
 
