@@ -1,5 +1,4 @@
-![CopyE83B42F-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/3a6acb17-d3eb-46fc-b3d5-9216d444f7f7)
-
+![NEW-ezgif com-effects](https://github.com/user-attachments/assets/ae1c2895-6185-459e-9e2a-518e376339fe)
 
 
 
