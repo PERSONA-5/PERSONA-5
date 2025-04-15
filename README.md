@@ -1,7 +1,5 @@
-![ezgif-3860a9eb49d35c](https://github.com/user-attachments/assets/0e89faae-b7ba-42c4-96b7-b21112144dfb)
-I HATE HIM I HOPE HE DROWNS THIS TOOK SO LONG
+![Copy67CFC93-ezgif com-effects](https://github.com/user-attachments/assets/056052f6-e157-480f-9323-f436425a528f)
 
-$${\color{blue}they/them }$$
 
 
 <p align="center">
