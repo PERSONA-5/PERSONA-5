@@ -2,12 +2,5 @@
 
 
 
-<p align="center">
-  <img width="320" height="300" src="https://media1.tenor.com/m/0hdA1Ri-zPIAAAAd/shuake-persona-5.gif">
-  
-</p>
 
-$${\color{pink}I \space heart \space shuake }$$
-
-#
 
