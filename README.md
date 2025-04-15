@@ -1,6 +1,7 @@
-![Copy67CFC93-ezgif com-effects](https://github.com/user-attachments/assets/056052f6-e157-480f-9323-f436425a528f)
+![CopyCopyDDFC2AD-ezgif com-effects](https://github.com/user-attachments/assets/1e8f642d-7f5d-4e15-bc49-2a5a8826c1ec)
+
 #
-pfp and chibis by@namw67
+pfp and chibis by@namw67 on twitter/X
 
 <details>
   <summary>click 2 view rant</summary>
