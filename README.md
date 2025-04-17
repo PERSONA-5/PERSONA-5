@@ -6,8 +6,9 @@
 #
 <ins>**pfp and chibis by https://x.com/namw67**</ins> 
 
+<sub>give READ.ME a second to load</sub>
 <details>
-  <summary><sub>click 2 view rant</sub></summary>
+  <summary><sub>click 2 view rant</sub></summary>   
   
 ![cqj55l](https://github.com/user-attachments/assets/3a5379e2-8dae-4711-9ae5-97795d862aad)
   this took FOR FUCKING EVER aka mainly finding a site that would make parts of the gif transparent. still a WIP !!
