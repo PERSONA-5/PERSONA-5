@@ -6,7 +6,7 @@
 #
 <ins>**pfp and chibis by https://x.com/namw67**</ins> 
 
-<sub>give READ.ME a second to load</sub>
+*give README a second to load*
 <details>
   <summary><sub>click 2 view rant</sub></summary>   
   
