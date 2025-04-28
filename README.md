@@ -16,5 +16,5 @@ i hope makoto drowns in the water <3 /aff i love him..
   <img width="300" height="300" src="https://media1.tenor.com/m/usBrcIXT_scAAAAd/persona-3-reload-persona.gif">
 </p>
 <p align="center">
-  <img width="300" height="300" src="https://i.imgur.com/KbrGdEF.png">
+  <img width="300" height="300" src="https://i.imgur.com/5h0frlr.png">
 </p>
