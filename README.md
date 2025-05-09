@@ -12,6 +12,8 @@
   this took FOR FUCKING EVER aka mainly finding a site that would make parts of the gif transparent. still a WIP !!
 adding more later ^-^
 i hope makoto drowns in the water <3 /aff i love him..
+
+
 ![NewProject44406CD80-ezgif com-resize (2)](https://github.com/user-attachments/assets/158d14ef-638b-4090-89c5-cb6a705b4e6d)
 
 
