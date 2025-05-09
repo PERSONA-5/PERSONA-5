@@ -1,7 +1,5 @@
 
 ![CopyCopyDDFC2AD-ezgif com-effects](https://github.com/user-attachments/assets/1e8f642d-7f5d-4e15-bc49-2a5a8826c1ec)
-![Untitled392_20250509140443](https://github.com/user-attachments/assets/a319ecfa-fae7-4ac0-ab50-7c46d2432fbd)
-
 
 #
 <ins>**pfp and chibis by https://x.com/namw67**</ins> 
