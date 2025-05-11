@@ -1,6 +1,10 @@
 
 ![CopyCopyDDFC2AD-ezgif com-effects](https://github.com/user-attachments/assets/1e8f642d-7f5d-4e15-bc49-2a5a8826c1ec)
 
+
+$${\color{blue}HI \ TORI}$$
+
+
 #
 <ins>**pfp and chibis by https://x.com/namw67**</ins> 
 
