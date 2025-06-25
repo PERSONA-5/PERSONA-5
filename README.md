@@ -2,8 +2,9 @@
 ![CopyCopyDDFC2AD-ezgif com-effects](https://github.com/user-attachments/assets/1e8f642d-7f5d-4e15-bc49-2a5a8826c1ec)
 
 
-$${\color{blue}HI \ TORI}$$
+$${\color{blue}HI \ TORIII}$$
 
+![NewProject47892CB10-ezgif com-gif-maker](https://github.com/user-attachments/assets/e50735d5-d589-40a6-b981-641e4d6dd56d)
 
 #
 <ins>**pfp and chibis by https://x.com/namw67**</ins> 
