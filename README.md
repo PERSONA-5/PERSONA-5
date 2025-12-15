@@ -5,9 +5,9 @@
 $${\color{blue}HI \ TORIII}$$
 
 ![NewProject47892CB10-ezgif com-gif-maker](https://github.com/user-attachments/assets/e50735d5-d589-40a6-b981-641e4d6dd56d)
-      ‎ ‎ ‎ ‎ ‎ ‎ ‎     my goats...... HAS CHANGED THIS LIST IS NO LONGER ACCURATE I LOVE YOU CHIE SATONAKA
+      ‎ ‎ ‎ ‎ ‎ ‎ ‎     my goats...... HAVE CHANGED THIS LIST IS NO LONGER ACCURATE I LOVE YOU CHIE SATONAKA
 #
-<ins>**pfp and chibis by https://x.com/namw67**</ins> 
+<ins>**chibis by https://x.com/namw67**</ins> 
 
 **give README a second to load the gif is big so it takes awhile>_>**
 <details>
